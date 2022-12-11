@@ -1,1 +1,1 @@
-https://dora-vusik.github.io/rsschool-cv/cv
+https://dora-vusik.github.io/rsschool-cv/
